@@ -1,2 +1,0 @@
-# QininYang.github.io
-Lab
